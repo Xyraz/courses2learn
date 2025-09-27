@@ -3,3 +3,10 @@ https://www.leisureteam.nl/uitje/escape-room-take-back-control-cybersecurity/?ms
 
 
 https://www.gic.nl/innovatie/organisaties-lopen-achter-met-ai-beleid-nieuwe-training-van-it-academy-biedt-houvast
+
+
+
+
+
+
+https://www.bing.com/search?qs=HS&pq=fro&sk=CSYN1UAS8LS7AS5&sc=24-3&pglt=299&q=from+day+zero+to+zero+day+pdf&cvid=63b5e476048e4eae951ddf5106eea92a&gs_lcrp=EgRlZGdlKgkIABBFGDsY-QcyCQgAEEUYOxj5BzIGCAEQRRg5MgYIAhAAGEAyBggDEC4YQDIGCAQQABhAMgYIBRBFGDwyBggGEEUYQTIGCAcQRRg8MgYICBBFGDzSAQgxODM0ajBqMagCALACAA&FORM=ANNTA1&PC=NMTS
