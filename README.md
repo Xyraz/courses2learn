@@ -10,3 +10,6 @@ https://www.gic.nl/innovatie/organisaties-lopen-achter-met-ai-beleid-nieuwe-trai
 pentesterlab.com
 
 https://www.bing.com/search?qs=HS&pq=fro&sk=CSYN1UAS8LS7AS5&sc=24-3&pglt=299&q=from+day+zero+to+zero+day+pdf&cvid=63b5e476048e4eae951ddf5106eea92a&gs_lcrp=EgRlZGdlKgkIABBFGDsY-QcyCQgAEEUYOxj5BzIGCAEQRRg5MgYIAhAAGEAyBggDEC4YQDIGCAQQABhAMgYIBRBFGDwyBggGEEUYQTIGCAcQRRg8MgYICBBFGDzSAQgxODM0ajBqMagCALACAA&FORM=ANNTA1&PC=NMTS
+
+
+https://arxiv.org/abs/2408.13296v1
